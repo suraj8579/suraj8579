@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Deep Learning**
 
-- 📫 How to reach me **sj8656071@gmail.com**
+- 📫 How to reach me **surajjha844@gmail.com**
 
 - ⚡ Fun fact **I am Funny! 😎**
 
